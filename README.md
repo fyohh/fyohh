@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @fyohh
+- 👀 I’m interested in video games 🎮
+- 🌱 I’m currently learning how to script 💻
+- 📫 How to reach me twitter: @fyohh_
